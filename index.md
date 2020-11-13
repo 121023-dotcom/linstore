@@ -2,7 +2,7 @@
 
 you can buy csgo account and steam any game account in here
 
-price:unrank5USD(prime)21LV
+price:5USD(prime)21LV unrank
 
 DISCORD:OLDSIX#9864
 
