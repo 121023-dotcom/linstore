@@ -9,11 +9,11 @@ DISCORD:OLDSIX#9864
 CSGO ACC GS/FA/EV0/OT/AW/CFG 
 
 ```markdown
-Syntax highlighted code block
 
 # CSGO 21acc ONLY 7USD
 ##  GS/FA/EV0/OT/AW/CFG 
 ### private CHEAT
 
-taiwan bank.atm
+bank.atm
 paypal,green world btc
+discor:https://discord.gg/XeRThaMpck
